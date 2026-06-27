@@ -20,7 +20,7 @@ Tipologia: Vendita di prodotti online
 
 ## Link e social associati
 
-Usernames: Kuthara, OmSanth
+Usernames: Kuthara, Kuth, OmSanth
 
 [Sito web](https://kuthara.com/)
 
